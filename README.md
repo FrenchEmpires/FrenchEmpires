@@ -16,7 +16,7 @@ Basic DNI criteria, Fakeclaimers, PROSHIP DARKSHIP EWEWEW
 
 
 
-| First Image | Second Image |
+|  |  |
 | :---: | :---: |
 | [![Rentry](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1249_20261123192120.png)](https://rentry.co/FrenchEmpires) | [![Rentry](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1249_20261123192120.png)](https://rentry.co/FrenchEmpires) |
 
