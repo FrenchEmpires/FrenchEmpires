@@ -11,10 +11,6 @@ I'm only really into Napoleonic era, but I'm open to learning about other things
 IDM sitting as ships, C*H always allowed unless i'm sitting with friends. I block freely so if you're weird i'll just block you
 ![](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1250_20261123192248.png)
 
-### DNI
-Basic DNI criteria, Fakeclaimers, PROSHIP DARKSHIP EWEWEW 
-
-
 
 |  |  |
 | :---: | :---: |
