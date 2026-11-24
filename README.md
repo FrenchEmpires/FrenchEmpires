@@ -9,3 +9,4 @@ I'm a system, but I will never mention it unless we're close. Feel free to ask w
 I'm only really into Napoleonic era, but I'm open to learning about other things!
 
 IDM sitting as ships, C*H always allowed unless i'm sitting with friends
+![](https://64.media.tumblr.com/2cd4cfa0df08c61759ef322a44bc4945/58902d31b647cbc7-49/s2048x3072/a34ae02f364d83b32dda544dc060da508dd4c2ed.pnj)
