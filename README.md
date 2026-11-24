@@ -3,7 +3,7 @@
 
 <p align="center">IM ABOUT FIVE SECONDS FROM EATING YOU.</p>
 
-# BYI
+### BYI
 I'm a system, but I will never mention it unless we're close. Feel free to ask whos fronting though !
 
 I'm only really into Napoleonic era, but I'm open to learning about other things! I'm a larper i only speak eng im so fucking sorry.
@@ -13,3 +13,4 @@ IDM sitting as ships, C*H always allowed unless i'm sitting with friends. I bloc
 
 ### DNI
 Basic DNI criteria, Fakeclaimers, PROSHIP DARKSHIP EWEWEW 
+![test shh](https://64.media.tumblr.com/05691b5acd48886af1822526df343128/5c8247d3b8e41947-e1/s1280x1920/20e9e3ee94986c6091ca5fe08ce27b61f1bec911.pnj)
