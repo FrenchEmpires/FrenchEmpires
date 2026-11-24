@@ -9,9 +9,6 @@ I'm a system, but I will never mention it unless we're close. Feel free to ask w
 I'm only really into Napoleonic era, but I'm open to learning about other things! I'm a larper i only speak eng im so fucking sorry.
 
 IDM sitting as ships, C*H always allowed unless i'm sitting with friends. I block freely so if you're weird i'll just block you
-![](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1250_20261123192248.png)
-
-
 |  |  |
 | :---: | :---: |
 | [![Rentry](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1249_20261123192120.png)](https://rentry.co/FrenchEmpires) | [![Atabook](https://file.garden/aWdZ8_hwaGcNwjuM/Untitled1249_20261123192134.png)](https://macandcheese.atabook.org) |
