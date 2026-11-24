@@ -1,4 +1,4 @@
-## Hi there 👋
+![](https://github.com/FrenchEmpires/FrenchEmpires/blob/main/Untitled1248_20261123185759.png)
 
 <!--
 **FrenchEmpires/FrenchEmpires** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
