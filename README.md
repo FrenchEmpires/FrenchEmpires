@@ -13,4 +13,5 @@ IDM sitting as ships, C*H always allowed unless i'm sitting with friends. I bloc
 
 ### DNI
 Basic DNI criteria, Fakeclaimers, PROSHIP DARKSHIP EWEWEW 
-![test shh](https://64.media.tumblr.com/05691b5acd48886af1822526df343128/5c8247d3b8e41947-e1/s1280x1920/20e9e3ee94986c6091ca5fe08ce27b61f1bec911.pnj)
+[![Rentry](https://64.media.tumblr.com/1a519a266b0e526857d9618978e550d3/02e73a3f24807ae5-9b/s250x400/a1d5ddf29f2486b39d66d2f83db1c1b5df771964.webp)](https://rentry.co/FrenchEmpires)
+
